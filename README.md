@@ -1,1 +1,2 @@
-![Logo_JL2](https://github.com/lorza12/lorza12/assets/115027137/f2efaf88-1c04-4928-92a9-f4c6b2769ecc)
+
+![Logo_JL2 - copia](https://github.com/lorza12/lorza12/assets/115027137/ae5341d9-d078-4e86-9cce-fb879e097d14)
